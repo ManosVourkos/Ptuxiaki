@@ -1,1 +1,1 @@
-# ProjectDiploams
+# ProjectDiplomas
